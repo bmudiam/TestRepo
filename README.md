@@ -1,1 +1,1 @@
-Adding content from chin
+Removed content by me
